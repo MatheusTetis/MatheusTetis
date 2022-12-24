@@ -6,7 +6,7 @@
 Send me an e-mail at eng.matheuspt@gmail.com or<br>
 Send me an inMail at https://www.linkedin.com/in/matheus-teixeira-885752118/<br>
 <br>
-Nice to meet you <3
+Nice to meet you 💙
 
 <!---
 MatheusTetis/MatheusTetis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
